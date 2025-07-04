@@ -1,7 +1,3 @@
 In the natural world, flowers are not only beautiful but also diverse in shape, color, and fragrance. Each flower species has unique characteristics that make them easy to identify. For example, roses are known for their soft, layered petals and sweet scent, often used on romantic occasions. Daisies, with their sun-like shape and bright colors, symbolize cheerfulness and joy. Orchids stand out with their unique shapes and rich hues, often regarded as symbols of luxury and elegance. Additionally, the small, heart-shaped petals of violets can be found in gardens, evoking a sense of tranquility. Thanks to these distinct features, we can easily differentiate and appreciate the various flower species in nature.
 
 
-
-Trong thế giới tự nhiên, hoa không chỉ đẹp mắt mà còn đa dạng về hình dáng, màu sắc và hương thơm. Mỗi loài hoa đều có những đặc điểm riêng biệt giúp chúng ta dễ dàng nhận diện. Ví dụ, hoa hồng với những cánh hoa mềm mại, hình chóp và mùi hương ngọt ngào, thường được sử dụng trong các dịp lễ tình nhân. Hoa cúc, với hình dáng giống như mặt trời và màu sắc tươi sáng, là biểu tượng của sự vui tươi và phấn chấn. Hoa lan lại nổi bật với hình dáng độc đáo và màu sắc phong phú, thường được coi là biểu tượng của sự sang trọng và tinh tế. Ngoài ra, hoa violet nhỏ bé, với những cánh hoa hình trái tim, thường xuất hiện trong các khu vườn và mang lại cảm giác thanh bình. Nhờ vào những đặc điểm này, chúng ta có thể dễ dàng phân biệt và yêu thích những loài hoa khác nhau trong tự nhiên.
-
-
